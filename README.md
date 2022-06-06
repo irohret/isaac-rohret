@@ -1,1 +1,1 @@
-# isaac-rohret
+# Isaac's project/ideas
